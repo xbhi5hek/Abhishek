@@ -1,3 +1,5 @@
+Aspiring software developer passionate about learning, building projects, and improving problem-solving skills.
+
 # Hi 👋, I'm Abhishek Kushwaha
 
 🚀 Aspiring Developer | Learning & Building with Code
